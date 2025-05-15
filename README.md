@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @9811270528087
+- 👋 Hi, I’m Rachel Mochelanyana
 - 👀 I’m interested in all things tech
 - 🌱 I’m currently learning Data Analytics 
 - 💞️ I’m looking to collaborate on Joint Research Initiatives
